@@ -1,11 +1,11 @@
 ## Paige E Vaughn
 
 Criminology & Criminal Justice PhD Candidate 
-University of Missouri - St. Louis
+_University of Missouri - St. Louis_
 
 Researcher
-Justice Collaboratory 
-The Yale Law School
+_Justice Collaboratory_ 
+_at Yale Law School_
 
 ### Selected Work
 Vaughn, P. E. (2020). The effects of devaluation and solvability on crime clearance. Journal of Criminal Justice. https://doi.org/10.1016/j.jcrimjus.2020.101657
